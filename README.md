@@ -1,16 +1,16 @@
-## Hi there 👋
+## oi👋
 
-<!--
-**kauangalan/kauangalan** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+me chamo Kauan 
+16 anos 
+04/08
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- 🥊 minha atividade favorita é treinar e lutar boxe
+- 🧑‍🎨 estou cursando o ensino médio 
+- 🐊 minha marca favorita é lacoste 
+- 🕟 meu horario favorito é 4;20
+- 💬 
+- 📫 
+- 😄 
+- ⚡ 
+
